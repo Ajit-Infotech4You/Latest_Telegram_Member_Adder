@@ -11,6 +11,4 @@ Show full video on YouTube : https://www.youtube.com/watch?v=9XWWkiY4kgw
 
 🆔My YouTube Channel : https://www.youtube.com/c/Infotech4You/videos
 
-🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
-
 🆔 Crypto : USDT TRC20 :- TXxjQ3PfhQTmLUC5Mv8q4377bZ8nEm5zH5
